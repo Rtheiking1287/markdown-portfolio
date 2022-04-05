@@ -1,0 +1,1 @@
+![Image of Robert Heiking](https://media-exp1.licdn.com/dms/image/C4D03AQFkrEos2LZcKQ/profile-displayphoto-shrink_800_800/0/1645945483634?e=2147483647&v=beta&t=KibOYFmubT2NXwnczKT4I4nOBEXqwpsDYQoRo7YhGPQ)
